@@ -31,10 +31,10 @@ DNI / DISLIKES:
 ---
 ACTIVITY:
 ----
-* 🟢 . ꙳ : ' active / online . '
-* 🌙 . ꙳ : ' AFK / off tab . '
-* 🛑 . ꙳ : ' muted . '
-* ⚫ . ꙳ : ' offline / dni . '
+* 🟢 . ꙳ : _' active / online . '_
+* 🌙 . ꙳ : _' AFK / off tab . '_
+* 🛑 . ꙳ : _' muted . '_
+* ⚫ . ꙳ : _' offline / dni . '_
 
 ---
 SOCIAL MEDIA:
