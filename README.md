@@ -20,6 +20,23 @@ INTEREST / LIKES:
 * ★ . _TV Girl_
 ---------
 
+DNI / DISLIKES:
+---
+* ✧ . _Kpop fans_
+* ✧ . _Helluva boss / Hazbin hotel fans_
+* ✧ . _homophobes / transphobes / racism_
+* ✧ . _groomers / pedophiles_
+* ✧ . _children / 18+ people.._
+* ✧  _proshippers_
+---
+ACTIVITY:
+----
+* 🟢 . ꙳ : ' active / online . '
+* 🌙 . ꙳ : ' AFK / off tab . '
+* 🛑 . ꙳ : ' muted . '
+* ⚫ . ꙳ : ' offline / dni . '
+
+---
 SOCIAL MEDIA:
 --------
 ⌑ . Discord :
@@ -41,12 +58,3 @@ SOCIAL MEDIA:
 ⌑ . PonyTown :
 * _Zijii ! ☆ ._
 
-------
-DNI / DISLIKES:
----
-* ✧ . _Kpop fans_
-* ✧ . _Helluva boss / Hazbin hotel fans_
-* ✧ . _homophobes / transphobes / racism_
-* ✧ . _groomers / pedophiles_
-* ✧ . _children / 18+ people.._
-* ✧  _proshippers_
