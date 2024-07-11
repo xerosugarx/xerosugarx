@@ -3,7 +3,7 @@ Heyhey !! Welcome :DD
 -----
 ABOUT ME:
 ----------------------------
-☆ . Ziji / Xero / Fidget !! . ꙳
+☆ . Zijii / Xero / Fidget !! . ꙳
 
 * ✰ . _they/he/she , any prnns ._
 
@@ -18,11 +18,17 @@ INTEREST / LIKES:
 * ★ . _reading ._
 * ★ . _Blåhaj !!_
 * ★ . _TV Girl_
+* ★ . _m1v_
 ---------
 
 DNI / DISLIKES:
 ---
-* ✧ . _Kpop fans_
+
+( Most of these don't count if we're already friends!! : 3 )
+
+---
+
+* ✧ . _Kpop fans_ 
 * ✧ . _Helluva boss / Hazbin hotel fans_
 * ✧ . _homophobes / transphobes / racism_
 * ✧ . _groomers / pedophiles_
@@ -32,9 +38,11 @@ DNI / DISLIKES:
 ACTIVITY:
 ----
 * 🟢 . ꙳ : _' active / online . '_
-* 🌙 . ꙳ : _' AFK / off tab . '_
+* 🌙 . ꙳ : _' (semi) AFK / off tab . '_
 * 🛑 . ꙳ : _' muted . '_
-* ⚫ . ꙳ : _' offline / dni . '_
+* ⚫ . ꙳ : _' offline . '_
+
+( * ⚫ . ꙳ : _' invisible (dniuf) . '_ )
 
 ---
 SOCIAL MEDIA:
