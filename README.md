@@ -24,7 +24,7 @@ INTEREST / LIKES:
 DNI / DISLIKES:
 ---
 
-( Most of these don't count if we're already friends!! : 3 )
+( Most of these don't count if we're already friends !! : 3 )
 
 ---
 
