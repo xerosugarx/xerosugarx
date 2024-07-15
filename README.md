@@ -5,21 +5,43 @@ ABOUT ME:
 ----------------------------
 ☆ . Zijii / Xero / Fidget !! . ꙳
 
-* ✰ . _they/he/she , any prnns ._
+* ✰ . _they / he / she , any prnns ._
 
-⟡ . pan / omnisexual . (queer!!!!!)
+⟡ . pan / omnisexual . _(queer!!!!!)_
 
 ----------
 
-INTEREST / LIKES:
+ACTIVITY:
+----
+* 🟢 . ꙳ : _' active / online . '_
+* 🌙 . ꙳ : _' (semi) AFK / off tab . '_
+* 🛑 . ꙳ : _' muted . '_
+* ⚫ . ꙳ : _' offline . '_
+
+( * ⚫ . ꙳ : _' invisible (dniuf) . '_ )
+
+-----
+
+HOBBIES / INTERESTS:
 -----------
 * ★ . _Splatoon !!_
-* ★ . _art / crafts / animations ._
+* ★ . _Blåhaj ._
+* ★ . _drawing ._
+* ★ . _animating ._
+* ★ . _crafting ._
 * ★ . _reading ._
-* ★ . _Blåhaj !!_
-* ★ . _TV Girl_
-* ★ . _m1v_
+* ★ . _hanging out with friends :33 ._
+
 ---------
+
+MUSIC:
+---
+* ☆ . _Joost Klein ._
+* ☆ . _Marina !!_
+* ☆ . _TV Girl ._
+* ☆ . _m1v ._
+* ☆ . _Aiden DX !!_
+* ☆ . _Goreshit (breakcore in general !!)_
 
 DNI / DISLIKES:
 ---
@@ -33,18 +55,10 @@ DNI / DISLIKES:
 * ✧ . _homophobes / transphobes / racism_
 * ✧ . _groomers / pedophiles_
 * ✧ . _children / 18+ people.._
-* ✧  _proshippers_
----
-ACTIVITY:
-----
-* 🟢 . ꙳ : _' active / online . '_
-* 🌙 . ꙳ : _' (semi) AFK / off tab . '_
-* 🛑 . ꙳ : _' muted . '_
-* ⚫ . ꙳ : _' offline . '_
-
-( * ⚫ . ꙳ : _' invisible (dniuf) . '_ )
+* ✧ . _proshippers_
 
 ---
+
 SOCIAL MEDIA:
 --------
 ⌑ . Discord :
