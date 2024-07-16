@@ -22,7 +22,7 @@ ACTIVITY:
 
 -----
 
-HOBBIES / INTERESTS:
+INTERESTS / HOBBIES:
 -----------
 * ★ . _Splatoon !!_
 * ★ . _Blåhaj ._
@@ -46,7 +46,7 @@ MUSIC:
 DNI / DISLIKES:
 ---
 
-( Most of these don't count if we're already friends !! : 3 )
+( Some of these don't count if we're already friends !! : 3 )
 
 ---
 
