@@ -3,12 +3,13 @@ Heyhey !! Welcome :DD
 -----
 ABOUT ME:
 ----------------------------
-☆ . Zijii / Xero / Fidget !! . ꙳
+☆ . Zijii / Xero / Fidget !! . °
 
-* ✰ . _they / he / she , any prnns ._
+* ✰ . _they / he / she , any prnns ._ 
 
-⟡ . pan / omnisexual . _(queer!!!!!)_
+⟡ . pan / omnisexual . _(queer!!!!!)_ 
 
+* . ° ✮ , _tired therapist friend ._ 
 ----------
 
 ACTIVITY:
@@ -18,7 +19,7 @@ ACTIVITY:
 * 🛑 . ꙳ : _' muted . '_
 * ⚫ . ꙳ : _' offline . '_
 
-( * ⚫ . ꙳ : _' invisible (dniuf) . '_ )
+( • ⚫ . ꙳ : _' invisible (dniuf) . '_ )
 
 -----
 
