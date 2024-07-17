@@ -9,7 +9,10 @@ ABOUT ME:
 
 ⟡ . pan / omnisexual . _(queer!!!!!)_ 
 
-* . ° ✮ , _tired therapist friend ._ 
+* . ° ★ , _tired therapist friend ._
+
+✮ . ' _dms_ & _friend requests_ are always open !! 
+
 ----------
 
 ACTIVITY:
