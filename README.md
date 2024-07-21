@@ -7,7 +7,7 @@ ABOUT ME:
 
 * ✰ . _they / he / she , any prnns ._ 
 
-⟡ . pan / omnisexual . _(queer!!!!!)_ 
+⟡ . lesbian / omnisexual . _(queer!!!!!)_ 
 
 * . ° ★ , _tired therapist friend ._
 
